@@ -1,2 +1,1 @@
-# Toshi-s-trendy-treasures
-Toshi’s trendy treasures 
+#www.Trendytreasures.com
